@@ -1,1 +1,0 @@
-# fuadyhidayat.github.io
